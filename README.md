@@ -1,3 +1,3 @@
 # FailyV
 
-Hum .. non toujours pas !
+Ca valait le coup d'essayer !
